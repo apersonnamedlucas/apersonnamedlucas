@@ -1,0 +1,6 @@
+- Hi, I'm lucas!
+- I’m interested in proxies
+- I’m currently learning python
+- my discord is randomhuman_me_idk
+- Pronouns: he/him
+- Fun fact: humans are dumb
